@@ -1,1 +1,1 @@
-Welcome to my GitHub profile! :kissing:
+Welcome to my GitHub profile! 😗
